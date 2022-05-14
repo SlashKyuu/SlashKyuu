@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SlashKyuu
 - 👀 I’m interested in nothing
-- 🌱 I’m currently learning how to kill myself painlessly 
+- 🌱 I’m currently learning a painless way to kill myself
 - 💞️ I’m looking to collaborate on the christmas tree project
 - 📫 How to reach me : don't
 
